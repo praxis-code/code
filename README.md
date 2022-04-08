@@ -5,3 +5,4 @@ buka yok
 okeee
 yaudah
 
+ganti yaa

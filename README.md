@@ -1,6 +1,2 @@
 # code
-okeee
-yaudah
- misal
-push terooss!!
-
+buka yok
